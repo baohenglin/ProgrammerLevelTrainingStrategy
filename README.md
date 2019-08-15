@@ -1,5 +1,5 @@
 <p align='center'>
-<img src='https://upload-images.jianshu.io/upload_images/4164292-3af671809b36bd13.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240'>
+<img src='https://upload-images.jianshu.io/upload_images/4164292-924a7ecba1243f0a.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240'>
 </p>
 
 <p align='center'>
